@@ -2,7 +2,7 @@
 
  
 
-- Eu sou o João!
+- 👋olá, Eu sou o João!
 - 📚Estou aprendendo a programação em JavaScript, HTML e CSS.
 
 ---
