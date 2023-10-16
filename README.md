@@ -11,21 +11,5 @@
 
 
 
-
-
-
-
-<img src="https://www.google.com/url?sa=i&url=https%3A%2F%2Fwww.carmagazine.co.uk%2Fcar-reviews%2Ftoyota%2Fsupra-coupe%2F&psig=AOvVaw2Fvak9P1CIPtRMciJCYVYe&ust=1697552421106000&source=images&cd=vfe&opi=89978449&ved=0CBEQjRxqFwoTCLiJ1dzh-oEDFQAAAAAdAAAAABAE" />
-
-
-
-
-
-
-
-
-
-
-
 - Thanks for visiting.
 
